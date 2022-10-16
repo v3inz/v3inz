@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @v3inz
+- 👀 I’m interesting
+- 🌱 I’m currently learning
+- 💞️ I’m looking to collaborate
+- 📫 You can't reach me
